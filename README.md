@@ -1,6 +1,5 @@
 [![LEGENDBOT](https://telegra.ph/file/2dfd3e6d9007aabffad92.jpg)](https://telegra.ph/file/909bd5efe4bebb70d3438.jpg)
 
-
 <h1 align="center">
 <b> 『Lêɠêɳ̃dẞø†』 </b>
 </h1>
